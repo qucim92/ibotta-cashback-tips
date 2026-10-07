@@ -1,0 +1,1 @@
+# ibotta-cashback-tips
